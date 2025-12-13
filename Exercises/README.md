@@ -15,6 +15,15 @@ https://www.tinkercad.com/things/h2rpyRDSmtd-task4?sharecode=ggHCBE6PWFkuBHTmrwS
 ### Task 5
 https://www.tinkercad.com/things/4EwEKSV9CLo-task5?sharecode=DwHzzHfPBsw75TUie9b3I6S-4Uqn4pRa-HrJ_zdECkI
 
+### Task 6 (Car Cup holder)
+https://www.tinkercad.com/things/iGCdBnpDIPN-task6?sharecode=DRqw8gKAMszxQZjzvuRQw1D0q69_tASqCs_0jOu5D1E
+
+### Task 6a
+https://www.tinkercad.com/things/3dnp6uTeWmZ-task6a?sharecode=pSSCUtzSCqErjRs8v3u8FZPcdT2CZTRP0j3YHXgmSos
+
+### Task 7 (Car cup mobile holder)
+https://www.tinkercad.com/things/69lj74Kf6IC-task7?sharecode=8iY0eMM4lSDYc_Fg6l7tDsZ8eTlP3Qg_JwKbJ4qte-M
+
 ### Practice 1
 https://www.tinkercad.com/things/21QQCor28bf-practice1?sharecode=zczFUl5XYQAR0vyzY5v7B0LIaWYTBGdGyyDFJf12b98
 
